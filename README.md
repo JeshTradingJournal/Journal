@@ -4,3 +4,4 @@
 ### Day 1.3 Journal - It's very volatile, it's unpredictable. How are the pros doing it, how are they so good.
 ### Day 1.4 Journal - It went down, now I must wait for the time to get it.
 ### Day 1.5 Journal - Still haven't found a spot to join, ETH had a small dump and sudden pump.
+### Day 1.6 Journal - I am late to joining the spot
