@@ -3,3 +3,4 @@
 ### Day 1.2 Journal - All red candle it seems people are making it go down. I am waiting for the right time to get in.
 ### Day 1.3 Journal - It's very volatile, it's unpredictable. How are the pros doing it, how are they so good.
 ### Day 1.4 Journal - It went down, now I must wait for the time to get it.
+### Day 1.5 Journal - Still haven't found a spot to join, ETH had a small dump and sudden pump.
